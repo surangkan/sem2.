@@ -1,1 +1,1 @@
-# sem2.
+# sem2.![326152996_1561407904345771_4602620297212516402_n](https://user-images.githubusercontent.com/121929233/214766851-cce39a9b-1f2c-4d0f-b884-cd4a7a3d2bf9.jpg)
